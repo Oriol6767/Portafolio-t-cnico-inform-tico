@@ -1,1 +1,1 @@
-# Portafolio-t-cnico-inform-tico
+# Portafolio-tecnico-informatico
